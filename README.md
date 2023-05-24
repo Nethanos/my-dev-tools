@@ -1,2 +1,2 @@
-# my-dev-tools
+# Fuck nazis
 Coding comfort stuff
